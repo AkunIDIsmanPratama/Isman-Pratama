@@ -1,2 +1,0 @@
-# Isman-Pratama
-Beta
